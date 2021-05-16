@@ -1,2 +1,2 @@
 # efso-bot
-efsane discord botu, yey ✔🍌
+31 ✔🍌
